@@ -1,4 +1,4 @@
-### Hi there, I'm Macarena :smiley_cat:
+### Hi! I'm Macarena :smiley_cat:
 
 Maths teacher :notebook_with_decorative_cover:	
 
